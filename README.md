@@ -1,0 +1,2 @@
+# KADIR
+Fotoshop
